@@ -26,3 +26,13 @@ Conjunto de codigos pa quitarse el frio
 
 # Punto 5
 
+![image](https://github.com/user-attachments/assets/c14e235a-12d2-4482-a863-a0dc2a5877a6)
+![image](https://github.com/user-attachments/assets/e54a6272-4c6a-45aa-928f-26ba218d20a2)
+
+# Punto 6
+
+![image](https://github.com/user-attachments/assets/ddc4bee6-2c68-46cf-907f-89aba929b3b1)
+![image](https://github.com/user-attachments/assets/0d8f8400-2c45-4459-8ce8-8efadf06952f)
+
+# Punto 7
+
